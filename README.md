@@ -1,1 +1,1 @@
-# Сyberpank landing by Bondarenko Ruslan
+# Сyberpunk landing by Bondarenko Ruslan
